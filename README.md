@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **tusharmohanpuria2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GlqS8HrK5VuuIt7pSuqe02hAVN_5Oqkl/view?usp=sharing](https://drive.google.com/file/d/1GlqS8HrK5VuuIt7pSuqe02hAVN_5Oqkl/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1heMIuV2VOS3DMNSqiOxBzLdfqkeTgozT/view?usp=sharing](https://drive.google.com/file/d/1heMIuV2VOS3DMNSqiOxBzLdfqkeTgozT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
