@@ -11,7 +11,7 @@
 
 - 📫 How to reach me [CLICK HERE](mailto:tusharmohanpuria2003@gmail.com)
 
-- 📄 Know about my experiences [CLICK HERE](https://tinyurl.com/Tushar-M)
+- 📄 Know about my experiences [CLICK HERE](https://drive.google.com/file/d/1-6CHNjOUNnBjq0O6iRiXqmAZol_b0ihB/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
