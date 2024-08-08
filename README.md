@@ -9,9 +9,9 @@
 
 - 🌱 I’m currently learning **AI/ML, web3**
 
-- 📫 How to reach me **tusharmohanpuria2003@gmail.com**
+- 📫 How to reach me [CLICK HERE](mailto:tusharmohanpuria2003@gmail.com)
 
-- 📄 Know about my experiences [https://tinyurl.com/Tushar-M](https://tinyurl.com/Tushar-M)
+- 📄 Know about my experiences [CLICK HERE](https://tinyurl.com/Tushar-M)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
