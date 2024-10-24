@@ -5,9 +5,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=tusharmohanpuria" alt="tusharmohanpuria" /></a> </p>
 
-- 🔭 I’m currently working on **HandWrite2Type**
+- 🔭 I’m currently working on **SFT**
 
-- 🌱 I’m currently learning **AI/ML, web3, CyberSecurity**
+- 🌱 I’m currently learning **AI/ML, web3, CyberSecurity, Golang**
 
 - 📫 How to reach me [CLICK HERE](mailto:tusharmohanpuria2003@gmail.com)
 
